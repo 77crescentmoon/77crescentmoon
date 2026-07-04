@@ -5,7 +5,7 @@
 ###
 
 <p align="center">
-  read [rentry](https://rentry.co/77crescentmoon) , sign ata !
+  read rentryhttps://rentry.co/77crescentmoon , sign ata !
 </p>
 
 ###
