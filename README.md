@@ -1,3 +1,12 @@
+<P ALIGN="CENTER">
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/e2548b69-945a-42b7-bd76-10a11d8f7b82" />
+</P>
+<p align="center">
+ART OF MY CLAIM (MAPICC) IN AG:C UNI!!!! MADE BY @kaitoishiguro. TYSMMMM MIGHTYY AAAAAAHHHHH
+</p>
+
+<p align="center">
+<img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/805d2433-89d1-4798-8e7b-dcf49cd235ef" />
 <div data-importer="image" align="center">
   <img data-importer="image" height="400" src="https://file.garden/akZ4S9wRbxyqyJr5/parrotx2_doodle_i_did_at_school-removebg-preview.png"  />
 </div>
