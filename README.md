@@ -1,9 +1,8 @@
-<P ALIGN="CENTER">
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/e2548b69-945a-42b7-bd76-10a11d8f7b82" />
-</P>
+<P ALIGN="center">
+<img width="235" height="500" alt="image" src="https://github.com/user-attachments/assets/88a1b690-1117-4af9-9aa7-f12d38fd9d0b" />
 <p align="center">
-ART OF MY CLAIM (MAPICC) IN AG:C UNI!!!! MADE BY @kaitoishiguro. TYSMMMM MIGHTYY AAAAAAHHHHH
-</p>
+$\color{#840f0c}{\Huge\text{.✦  ⠀ FOLLOW ! This is my regi claim's github account :D⠀  ✦.}}$
+
 
 <p align="center">
 <img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/805d2433-89d1-4798-8e7b-dcf49cd235ef" />
