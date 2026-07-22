@@ -1,11 +1,4 @@
-<P ALIGN="center">
-<img width="235" height="500" alt="image" src="https://github.com/user-attachments/assets/88a1b690-1117-4af9-9aa7-f12d38fd9d0b" />
-<p align="center">
-$\color{#840f0c}{\Huge\text{.✦  ⠀ FOLLOW ! This is my regi claim's github account :D⠀  ✦.}}$
 
-
-<p align="center">
-<img width="1280" height="102" alt="image" src="https://github.com/user-attachments/assets/805d2433-89d1-4798-8e7b-dcf49cd235ef" />
 <div data-importer="image" align="center">
   <img data-importer="image" height="400" src="https://file.garden/akZ4S9wRbxyqyJr5/parrotx2_doodle_i_did_at_school-removebg-preview.png"  />
 </div>
