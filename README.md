@@ -38,6 +38,8 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
   </div>
   <p align="center">
   $${\color{#f5f7c7}of\space promises\space broken,\space fragility\space hidden\space in\space song\space ‧₊˚ 𝄞}$$
+  </p>
+  
   <div data-importer="image" align="center">
   <img data-importer="image" width="300" src="https://file.garden/akZ4S9wRbxyqyJr5/204582c6c9ce01c14953077c70fb0204%20(1)__fliter--dark-green-sepia__channel--red__mode--normal.png"  />
 </div>
