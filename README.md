@@ -17,7 +17,7 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
 
 <div align="center">
 <details>
-  <summary><img src="https://file.garden/akZ4S9wRbxyqyJr5/Parrot_skin__fliter--dark-green-sepia__channel--all__mode--normal.webp" alt="Click to reveal details" width="100"></summary>
+  <summary><img src="https://file.garden/akZ4S9wRbxyqyJr5/Parrot_skin__fliter--dark-green-sepia__channel--all__mode--normal.webp" width="100"><img src="https://github.com/user-attachments/assets/2227f308-13f3-461f-8dac-6b594a599c9a" width="133"></summary>
   <br>
   
   [@arachnidace](https://github.com/arachnidace)⠀ ,⠀ [@kissmaglock](https://github.com/kissmaglock)⠀ ,⠀ [@h6xii](https://github.com/h6xii)⠀ ,⠀ [@c4ieri](https://github.com/c4ieri)⠀ ,⠀ [@L0ztStarz](https://github.com/L0ztStarz)⠀ ,⠀ [@vintagecasino](https://github.com/vintagecasino)⠀ ,⠀ [@sharkilzz](https://github.com/sharkilzz)⠀ ,⠀ [@gwnshot](https://github.com/gwnshot)⠀ ,⠀ [@ORBITALLOVE](https://github.com/ORBITALLOVE)⠀ ,⠀ [@chucklechaser](https://github.com/chucklechaser)⠀ ,⠀ [@ephxxm](https://github.com/ephxxm)⠀ ,⠀ [@soukeyeeee](https://github.com/soukeyeeee)⠀ ,⠀ [@truckstoptiger05](https://github.com/truckstoptiger05)
@@ -26,7 +26,10 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
 </div>
 
   <p align="center"> 
-    $${\color{#638564}click\space the\space arrow\space beside\space parrot\space to\space see\space friends!\space (˶ᵔ ᵕ ᵔ˶)}$$ 
+    $${\color{#638564}click\space the\space arrow\space beside\space odyssey\space duo\space to\space see\space friends!\space (˶ᵔ ᵕ ᵔ˶)}$$ 
+
+  <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=77crescentmoon&style=round&color=f5f7c7&label=birdlings" alt="profile view counter" width="120" align="center">
     
 ###
 
