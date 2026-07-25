@@ -41,3 +41,16 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
   <div data-importer="image" align="center">
   <img data-importer="image" width="300" src="https://file.garden/akZ4S9wRbxyqyJr5/204582c6c9ce01c14953077c70fb0204%20(1)__fliter--dark-green-sepia__channel--red__mode--normal.png"  />
 </div>
+
+##
+<P align="center">
+  $\Large \text{SHAME WALL}$
+</P>
+
+<p ALIGN="CENTER">
+  <img src="https://github.com/user-attachments/assets/de46decc-b55d-4441-bfcc-a2d89627d8dd" width="800" />
+</p>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/7b82fe5f-f322-4b2b-abd2-9b48116bf68e" width="800" />
+</p>
+
