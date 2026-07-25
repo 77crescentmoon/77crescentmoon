@@ -29,8 +29,8 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
 </details>
 </div>
 
-  <p align="center"> 
-    $${\color{#638564}click\space the\space arrow\space beside\space odyssey\space duo\space to\space see\space friends!\space (˶ᵔ ᵕ ᵔ˶)}$$ 
+$${\color{#638564}click\space the\space arrow\space beside\space odyssey\space duo\space to\space see\space friends!\space (˶ᵔ ᵕ ᵔ˶)}$$ 
+  </p>
 
   <p align="center">
   <img src="https://komarev.com/ghpvc/?username=77crescentmoon&style=round&color=f5f7c7&label=birdlings" alt="profile view counter" width="120" align="center">
@@ -40,9 +40,9 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
   <div align="center">
 <img src="https://file.garden/akZ4S9wRbxyqyJr5/PNG_image_52__fliter--dark-green-sepia__channel--red__mode--normal.webp" width="700" align="center">
   </div>
-  <p align="center">
+
   $${\color{#f5f7c7}of\space promises\space broken,\space fragility\space hidden\space in\space song\space ‧₊˚ 𝄞}$$
-  </p>
+
   
   <div data-importer="image" align="center">
   <img data-importer="image" width="300" src="https://file.garden/akZ4S9wRbxyqyJr5/204582c6c9ce01c14953077c70fb0204%20(1)__fliter--dark-green-sepia__channel--red__mode--normal.png"  />
