@@ -47,3 +47,24 @@ $${\color{#638564}click\space the\space arrow\space beside\space odyssey\space d
   <div data-importer="image" align="center">
   <img data-importer="image" width="300" src="https://file.garden/akZ4S9wRbxyqyJr5/204582c6c9ce01c14953077c70fb0204%20(1)__fliter--dark-green-sepia__channel--red__mode--normal.png"  />
 </div>
+
+##
+<P align="center">
+  $\Large \text{SHAME WALL}$
+</P>
+
+<p ALIGN="CENTER">
+  <img src="https://github.com/user-attachments/assets/de46decc-b55d-4441-bfcc-a2d89627d8dd" width="800" />
+</p>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/7b82fe5f-f322-4b2b-abd2-9b48116bf68e" width="800" />
+</p>
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853494603827/IMG_4206.png?ex=6a66a85b&is=6a6556db&hm=279238c76a9cbc416c00e6c50b55cacdeb0a4be0586090a4685ba302e5a41b2d&" width="800" />
+</p>
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853939462254/072AA0D0-8D0C-417E-953D-EFE57DE4D483.jpg?ex=6a66a85b&is=6a6556db&hm=0d767ba393ceb0581c03c91e1ad2e44522172b4b49648e3e56345828c5402eb5&" width ="800" />
+</p>
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853729616043/IMG_4205.png?ex=6a66a85b&is=6a6556db&hm=181afeb13d5ded9b9c853b112efdd148c0a9c650f4820ac56a3c80a2f3d0c538&" width="800" />
+</p>
