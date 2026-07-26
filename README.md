@@ -68,3 +68,9 @@ $${\color{#638564}click\space the\space arrow\space beside\space odyssey\space d
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853729616043/IMG_4205.png?ex=6a66a85b&is=6a6556db&hm=181afeb13d5ded9b9c853b112efdd148c0a9c650f4820ac56a3c80a2f3d0c538&" width="800" />
 </p>
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530886291581829301/IMG_4217.png?ex=6a673476&is=6a65e2f6&hm=79fcd75b6531451a3116716ae8b9824894182394a623109a863f2f1ac1d18e56&" width="800" />
+</p>
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530886074254102678/IMG_4208.png?ex=6a673442&is=6a65e2c2&hm=3157edab8185cf565f69b8fe496f7a6d50ab0d6256ee35df6070f018f6c9b8ca&" width="800" />
+</p>
