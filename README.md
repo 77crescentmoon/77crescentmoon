@@ -54,23 +54,12 @@ $${\color{#638564}click\space the\space arrow\space beside\space odyssey\space d
 </P>
 
 <p ALIGN="CENTER">
-  <img src="https://github.com/user-attachments/assets/de46decc-b55d-4441-bfcc-a2d89627d8dd" width="800" />
-</p>
-<p align="center">
-<img src="https://github.com/user-attachments/assets/7b82fe5f-f322-4b2b-abd2-9b48116bf68e" width="800" />
-</p>
-<p align="center">
-<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853494603827/IMG_4206.png?ex=6a66a85b&is=6a6556db&hm=279238c76a9cbc416c00e6c50b55cacdeb0a4be0586090a4685ba302e5a41b2d&" width="800" />
-</p>
-<p align="center">
-<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853939462254/072AA0D0-8D0C-417E-953D-EFE57DE4D483.jpg?ex=6a66a85b&is=6a6556db&hm=0d767ba393ceb0581c03c91e1ad2e44522172b4b49648e3e56345828c5402eb5&" width ="800" />
-</p>
-<p align="center">
-<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853729616043/IMG_4205.png?ex=6a66a85b&is=6a6556db&hm=181afeb13d5ded9b9c853b112efdd148c0a9c650f4820ac56a3c80a2f3d0c538&" width="800" />
-</p>
-<p align="center">
-<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530886291581829301/IMG_4217.png?ex=6a673476&is=6a65e2f6&hm=79fcd75b6531451a3116716ae8b9824894182394a623109a863f2f1ac1d18e56&" width="800" />
-</p>
-<p align="center">
-<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530886074254102678/IMG_4208.png?ex=6a673442&is=6a65e2c2&hm=3157edab8185cf565f69b8fe496f7a6d50ab0d6256ee35df6070f018f6c9b8ca&" width="800" />
+  <img src="https://github.com/user-attachments/assets/de46decc-b55d-4441-bfcc-a2d89627d8dd" width="400" />
+<img src="https://github.com/user-attachments/assets/7b82fe5f-f322-4b2b-abd2-9b48116bf68e" width="400" />
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853494603827/IMG_4206.png?ex=6a66a85b&is=6a6556db&hm=279238c76a9cbc416c00e6c50b55cacdeb0a4be0586090a4685ba302e5a41b2d&" width="400" />
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853939462254/072AA0D0-8D0C-417E-953D-EFE57DE4D483.jpg?ex=6a66a85b&is=6a6556db&hm=0d767ba393ceb0581c03c91e1ad2e44522172b4b49648e3e56345828c5402eb5&" width ="400" />
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530735853729616043/IMG_4205.png?ex=6a66a85b&is=6a6556db&hm=181afeb13d5ded9b9c853b112efdd148c0a9c650f4820ac56a3c80a2f3d0c538&" width="400" />
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530886291581829301/IMG_4217.png?ex=6a673476&is=6a65e2f6&hm=79fcd75b6531451a3116716ae8b9824894182394a623109a863f2f1ac1d18e56&" width="400" />
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1530886074254102678/IMG_4208.png?ex=6a673442&is=6a65e2c2&hm=3157edab8185cf565f69b8fe496f7a6d50ab0d6256ee35df6070f018f6c9b8ca&" width="400" />
+  <img src="https://media.discordapp.net/attachments/1515254601430077530/1531316419638071466/image.png?ex=6a68c50c&is=6a67738c&hm=8d25938f998b03fd823fdcf26ba73a22947e678dd63be95761a192839be2eec8&=&format=webp&quality=lossless&width=414&height=113" width="400" />
 </p>
