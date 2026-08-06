@@ -13,7 +13,7 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
     $${\color{#f5f7c7}⋆𐙚₊\space check\space google\space doc\space for\space regi\space patrol\space task\space ideas\space !\space}$$
     </p>
 
-<img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif"> ⠀⠀[rentry](https://rentry.co/77crescentmoon)⠀ ,⠀ [prns.cc](https://pronouns.cc/77crescentmoon)⠀ ,⠀ [atabook](https://77crescentmoon.atabook.org/) ⠀⠀<img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif">
+<img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif"> ⠀⠀[rentry](https://rentry.co/crownedx2)⠀ ,⠀ [prns.cc](https://pronouns.cc/77crescentmoon)⠀ ,⠀ [atabook](https://77crescentmoon.atabook.org/) ⠀⠀<img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif">
 
 </div>
 
