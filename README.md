@@ -10,7 +10,7 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
 <div align="center">
 
   <p align="center">
-    $${\color{#f5f7c7}⋆𐙚₊\space check\space google\space doc\space for\space my\space apology\space doc\space ^_^\space$$
+    $${\color{#f5f7c7}⋆𐙚₊\space check\space google\space doc\space for\space my\space apology\space doc.\space}$$
     </p>
 
 <img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif"> ⠀⠀[fluffle.cc](https://fluffle.cc/odysseyduoo)⠀ ,⠀ [prns.cc](https://pronouns.cc/@77crescentmoon)⠀ ,⠀ [atabook](https://parrot-x2.atabook.org/) ⠀⠀<img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif">
