@@ -9,10 +9,6 @@ $${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space re
 <img src="https://file.garden/akZ4S9wRbxyqyJr5/PNG_image_52__fliter--dark-green-sepia__channel--red__mode--normal.webp" width="700" align="center">
 <div align="center">
 
-  <p align="center">
-    $${\color{#f5f7c7}⋆𐙚₊\space check\space google\space doc\space for\space my\space apology\space}$$
-    </p>
-
 <img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif"> ⠀⠀[fluffle.cc](https://fluffle.cc/odysseyduoo)⠀ ,⠀ [prns.cc](https://pronouns.cc/@77crescentmoon)⠀ ,⠀ [atabook](https://parrot-x2.atabook.org/) ⠀⠀<img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif">
 
 </div>
