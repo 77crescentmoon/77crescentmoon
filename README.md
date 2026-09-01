@@ -51,7 +51,7 @@ $${\color{#638564}click\space the\space arrow\space beside\space odyssey\space d
 
   [@h6xii](https://github.com/h6xii) , [@L0ztStarz](https://github.com/L0ztStarz) , [@ephxxm](https://github.com/ephxxm) : ever since ARC, you three ( along with others that don't have a gh ) were the only ones i considered the most close with. you guys sat with me and comforted me throughout my episodes or when i just genuinely needed it, i'm so glad we're still friends to this day, i cherish you guys so much aahhh :( thank you so much for staying with me and always continuing to support me or give me advice in every step i take
 
-[@vintagecasino](https://github.com/vintagecasino) , [@gwnshot](https://github.com/gwnshot) , [@sharkilzz](https://github.com/sharkilzz) : thank you for giving me a chance to change and forgive me how i treated you guys back then, the journey to warming up with you guys was a rocky and very bumpy one but i'm relieved that we've gotten to this point where i can truly consider you guys close to me. i swear up and down that i will be by your side when things go south since you guys were also by my side when i was at my darkest point <3
+[@vintagecasino](https://github.com/vintagecasino) , [@sharkilzz](https://github.com/sharkilzz) : thank you for giving me a chance to change and forgive me how i treated you guys back then, the journey to warming up with you guys was a rocky and very bumpy one but i'm relieved that we've gotten to this point where i can truly consider you guys close to me. i swear up and down that i will be by your side when things go south since you guys were also by my side when i was at my darkest point <3
 
  all of my $${\color{#f5f7c7}oomfs}$$ that are in my bio, thank you for being friends with me (,; ⩌ ;,)
 
