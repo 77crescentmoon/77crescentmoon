@@ -1,4 +1,4 @@
-response to [@agc-doc](https://github.com/agc-doc) . you're not slick. [https://docs.google.com/document/d/1cN8pH2-x0tRjVL3hamHHr1y1P-PbL1iK__2iJoUQ234/edit?usp=sharing](<@472400246891347968> https://docs.google.com/document/d/1cN8pH2-x0tRjVL3hamHHr1y1P-PbL1iK__2iJoUQ234/edit?usp=sharing)
+response to [@agc-doc](https://github.com/agc-doc) . you're not slick. [https://docs.google.com/document/d/1cN8pH2-x0tRjVL3hamHHr1y1P-PbL1iK__2iJoUQ234/edit?usp=sharing](https://docs.google.com/document/d/1cN8pH2-x0tRjVL3hamHHr1y1P-PbL1iK__2iJoUQ234/edit?usp=sharing)
 
 <div data-importer="image" align="center">
   <img data-importer="image" width="300" src="https://file.garden/akZ4S9wRbxyqyJr5/204582c6c9ce01c14953077c70fb0204__fliter--dark-green-sepia__channel--red__mode--normal%20(1).png"  />
