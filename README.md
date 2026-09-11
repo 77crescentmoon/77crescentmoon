@@ -2,7 +2,7 @@
 <img width="500" alt="image" src="https://github.com/user-attachments/assets/eda652e3-d3cf-4298-b7de-85d46b17b87f" />
 </p>
 <p align="center">
-  AEROGUARD: CORPS IS #HEALING ❤️‍🩹
+  AEROGUARD: CORPS < AG:C ></AG:C> IS #HEALING ❤️‍🩹
 </p>
 
 ##
