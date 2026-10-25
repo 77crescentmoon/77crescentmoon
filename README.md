@@ -6,5 +6,14 @@
 </p>
 
 <p align="center">
-  Wip wiPPPPP
+  basic info Hi i will decorate soon
+</p>
+<p align="center">
+  my name is canada i am 17 i go by she/her or he/him if ur more comfortable with that u can call me nada too also more info in my links
+</p>
+<p align="center">
+  ask for current fronter, only request to talk to different alter if very important otherwise pls avoid doing this
+</p>
+<p align="center">
+  i love my friends hi ace hi six hi azu hi tomu hi gal hi aiko hi flame hi casino
 </p>
