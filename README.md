@@ -1,55 +1,10 @@
 <p align="center">
-<img width="500" alt="image" src="https://github.com/user-attachments/assets/eda652e3-d3cf-4298-b7de-85d46b17b87f" />
-</p>
-<p align="center">
-  AEROGUARD: CORPS < AG:C ></AG:C> IS #HEALING ❤️‍🩹
-</p>
-
-##
-
-
-<div data-importer="image" align="center">
-  <img data-importer="image" width="300" src="https://file.garden/akZ4S9wRbxyqyJr5/204582c6c9ce01c14953077c70fb0204__fliter--dark-green-sepia__channel--red__mode--normal%20(1).png"  />
-</div>
-
-$${\color{#f5f7c7}.☘︎ ݁˖\space i\space didnt\space need\space the\space reminder\space of\space things\space ive\space done\space wrong}$$
-
+<img width="500" alt="image" src="https://cdn.discordapp.com/attachments/1061198248515211336/1563887805627891827/IMG_7524.png?ex=6adf4384&is=6addf204&hm=0c31b0db71fd10b5bfe1efe4ed9af6a06e3b13f82d8d2a55c42d86372d21822f&" />
 
 <p align="center">
-<img src="https://file.garden/akZ4S9wRbxyqyJr5/PNG_image_52__fliter--dark-green-sepia__channel--red__mode--normal.webp" width="700" align="center">
-<div align="center">
+<img src="https://klipy.com/gifs/kyle-south-park-kyle-broflovski" alt="GIF">
+</p>
 
-<img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif"> ⠀⠀[fluffle.cc](https://fluffle.cc/odysseyduoo)⠀ ,⠀ [prns.cc](https://pronouns.cc/@77crescentmoon)⠀ ,⠀ [atabook](https://parrot-x2.atabook.org/) ⠀⠀<img src="https://file.garden/akZ4S9wRbxyqyJr5/IMG_5769__fliter--dark-green-sepia__channel--all__mode--normal.gif">
-
-</div>
-
-###
-
-<div align="center">
-<details>
-  <summary><img src="https://file.garden/akZ4S9wRbxyqyJr5/Parrot_skin__fliter--dark-green-sepia__channel--all__mode--normal.webp" width="100"><img src="https://github.com/user-attachments/assets/2227f308-13f3-461f-8dac-6b594a599c9a" width="133"></summary>
-  <br>
-  
-  [@arachnidace](https://github.com/arachnidace)⠀ ,⠀ [@kissmaglock](https://github.com/kissmaglock)⠀ ,⠀ [@h6xoi](https://github.com/h6xoi)⠀ ,⠀ [@9berrii](https://github.com/9berri)⠀ ,⠀ [@L0ztStarz](https://github.com/L0ztStarz)⠀ ,⠀ [@vintagecasino](https://github.com/vintagecasino)⠀ ,⠀ [@heartrott](https://github.com/heartrott)⠀ ,⠀ [@chucklechaser](https://github.com/chucklechaser)⠀ ,⠀ [@ephxxm](https://github.com/ephxxm)⠀ ,⠀ [@soukeyeeee](https://github.com/soukeyeeee)⠀ ,⠀ [@truckstoptiger05](https://github.com/truckstoptiger05)⠀ ,⠀ [@LeanZam](https://github.com/LeanZam)⠀ ,⠀ [@loosehyena](https://github.com/loosehyena)⠀ ,⠀ [@buildermonyaoi](https://github.com/buildermonyaoi)⠀ ,⠀ [@astrobarrage](https://github.com/astrobarrage)⠀ ,⠀ 
-  
-</details>
-</div>
-
-$${\color{#638564}click\space the\space arrow\space beside\space odyssey\space duo\space to\space see\space friends!\space (˶ᵔ ᵕ ᵔ˶)}$$ 
-  </p>
-
-  <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=77crescentmoon&style=round&color=f5f7c7&label=birdlings" alt="profile view counter" width="120" align="center">
-    
-###
-
-  <div align="center">
-<img src="https://file.garden/akZ4S9wRbxyqyJr5/PNG_image_52__fliter--dark-green-sepia__channel--red__mode--normal.webp" width="700" align="center">
-  </div>
-
-  $${\color{#f5f7c7}of\space promises\space broken,\space fragility\space hidden\space in\space song\space ‧₊˚ 𝄞}$$
-
-  
-  <div data-importer="image" align="center">
-  <img data-importer="image" width="300" src="https://file.garden/akZ4S9wRbxyqyJr5/204582c6c9ce01c14953077c70fb0204%20(1)__fliter--dark-green-sepia__channel--red__mode--normal.png"  />
-</div>
+<p align="center">
+  Wip wiPPPPP
+</p>
