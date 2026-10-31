@@ -6,3 +6,7 @@
 </p>
 
   Yep yep we are literally coderotted yep [@mijisua](https://github.com/mijisua) [@craig-tucker](https://github.com/craig-tucker) Yep yep i knew it yep yep yep lord save us all yep yep
+
+<p align="center">
+<img src="https://cdn.discordapp.com/attachments/1061198248515211336/1565954562253389824/Untitled27_20261031130409.png?ex=6ae6c855&is=6ae576d5&hm=39c819b7f0f08462bec58cf82e19bec6412fae41f45b70f75b46bfd8cdf5b1be&" width="500">
+</p>
