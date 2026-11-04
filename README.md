@@ -12,6 +12,4 @@
 </p>
 
 <div align="center">
-<video src="https://media.discordapp.net/attachments/1550325694670835773/1566752641030295622/v14044g50000dbaaldvog65on4eihm0g.mov?ex=6aec529a&is=6aeb011a&hm=b8002ffb2f5b7d4398abcc23c2d033973a1d91fc03560f10b0b0d70d2b74c1ff&">
-</video>
-</div>
+<video src="https://github.com/77crescentmoon/77crescentmoon/blob/bf24ad860dff2724c91090354fdb4df31afb9e7e/v14044g50000dbaaldvog65on4eihm0g.mp4">
