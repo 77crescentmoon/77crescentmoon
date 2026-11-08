@@ -1,4 +1,12 @@
 <p align="center">
+<img width="500" alt="image" src="https://github.com/user-attachments/assets/038420eb-594b-4067-bb32-446515df97cd" />
+</p>
+<p align="center">
+AMAZING WOW WOW WOW WOW WOW JUST COLORPICK MY PARROT BRO
+</p>
+
+
+<p align="center">
 <img src="https://cdn.discordapp.com/attachments/1061198248515211336/1568452927444492369/IMG_8324.jpg?ex=6aefdf1e&is=6aee8d9e&hm=af4f3ddb632bb3dd904d87be428d4f61152fc5b290c0f2b36f1201adf9c3908e&" width="500">
 </p>
 <p align="center">
