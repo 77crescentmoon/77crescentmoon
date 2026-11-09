@@ -10,7 +10,7 @@ AMAZING WOW WOW WOW WOW WOW JUST COLORPICK MY PARROT BRO
 <img src="https://cdn.discordapp.com/attachments/1061198248515211336/1568452927444492369/IMG_8324.jpg?ex=6aefdf1e&is=6aee8d9e&hm=af4f3ddb632bb3dd904d87be428d4f61152fc5b290c0f2b36f1201adf9c3908e&" width="500">
 </p>
 <p align="center">
-my name is nada i'm 17 years old i'm asian (chinese-indonesian) i go by he/she i'm bigender but 60% girl 40% boy (paragirl) i'm aroaceflux and bisexual i'm a level 6 thief and soon the humans will rescue me from this tower
+my name is canada or matthew u can call me nada or matt i'm 17 years old i'm asian (chinese-indonesian) i go by he/she i'm bigender but 60% girl 40% boy (paragirl) i'm aroaceflux and bisexual i'm a level 6 thief and soon the humans will rescue me from this tower
 </p>
 
 <p align="centsr">
