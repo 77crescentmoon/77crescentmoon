@@ -22,6 +22,10 @@ my name is canada or matthew u can call me nada or matt i'm 17 years old i'm asi
 </p>
 
 <p align="center">
+<img src="https://cdn.discordapp.com/attachments/1565628919871438969/1569393116375425076/IMG_8433.png?ex=6af34abc&is=6af1f93c&hm=818a45521cf8207a74d68898ffdf326261f6a33a4c0dc9cf304702af7e57e253&" width="500">
+</p>
+
+<p align="center">
 byi , i like to make it known i'm mentally ill please block me if you're uncomfortable with me , i will ignore you if you ask if i'm okay , i'm a sys and we don't like self-diagnosis (exception if you have a good enough reason for it) , i get really weird with my jokes , i tend to isolate myself and push my friends away ever so often  i don't hate you  it's just my way of coping  i'll come back , i have extreme social anxiety and almost never initiate convos first unless i'm comfortable with you
 </p>
 <p align="center">
