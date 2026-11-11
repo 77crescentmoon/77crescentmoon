@@ -32,7 +32,7 @@ my name is canada or matthew u can call me nada or matt i'm 17 years old i'm asi
 byi , i like to make it known i'm mentally ill please block me if you're uncomfortable with me , i will ignore you if you ask if i'm okay , i'm a sys and we don't like self-diagnosis (exception if you have a good enough reason for it) , i get really weird with my jokes , i tend to isolate myself and push my friends away ever so often  i don't hate you  it's just my way of coping  i'll come back , i have extreme social anxiety and almost never initiate convos first unless i'm comfortable with you
 </p>
 <p align="center">
-dni proship darkship profic anything that goes under the proship umbrella and endogenics/willogenics
+dni proship darkship profic anything that goes under the proship umbrella , endogenics/willogenics , pro-endo/willow , radqueers , right-wingers
 </p>
 
 <p align="center">
