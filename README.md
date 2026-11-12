@@ -16,7 +16,7 @@ my name is canada or matthew u can call me nada or matt i'm 17 years old i'm asi
 <img width="56" alt="BPD" src="https://github.com/user-attachments/assets/6b725fe7-b7eb-4aa0-82a3-50aea5f765c7" /> <img width="50" alt="D.I.D" src="https://github.com/user-attachments/assets/88bb2839-1d1c-414f-aa31-21e1e878bb1b" /> <img width="63" alt="Schizophrenia" src="https://github.com/user-attachments/assets/d6d02a6c-2f8e-42f9-a7f7-67352269a511" /> <img width="63" alt="MDD" src="https://github.com/user-attachments/assets/27eb7153-f2d2-439b-93bd-f6239b642152" /> <img width="56" alt="C-PTSD" src="https://github.com/user-attachments/assets/10a0eec6-182f-471c-9498-a77553825ffb" /> <img width="56" alt="Fibromyalgia" src="https://github.com/user-attachments/assets/a703f257-2239-4cfc-a4cf-0fd70453fa63" /> <img width="63" alt="GAD" src="https://github.com/user-attachments/assets/4cc834e2-9a76-443a-908e-29f45565a493" /> <img width="61" alt="Dyspraxia" src="https://github.com/user-attachments/assets/3426d47a-9de8-4d3d-ba21-62bb3ce0c092" /> <img width="58" alt="Dyslexia" src="https://github.com/user-attachments/assets/622c51db-7864-476f-9176-b7706dba47c0" /> <img width="58" alt="AuDHD" src="https://github.com/user-attachments/assets/2be1048f-82bf-47d5-a165-1876a81d7772" /> <img width="53" alt="AvPD" src="https://github.com/user-attachments/assets/1fe096fa-c357-4d46-af33-3c6f8209e964" /> <img width="47" alt="image" src="https://github.com/user-attachments/assets/ce01b277-0d0f-4a76-90fe-82dea02d4f6c" />
 
 
-<p align="centsr">
+<p align="center">
 <img src="https://cdn.discordapp.com/attachments/1061198248515211336/1568449982007218367/IMG_8322.png?ex=6aefdc60&is=6aee8ae0&hm=c3171c9c7f6ddce6984d33ae872c94c532338e8ea9b42acfe629e0f922724bae&" width="500">
 </p>
 
@@ -27,6 +27,11 @@ my name is canada or matthew u can call me nada or matt i'm 17 years old i'm asi
 <p align="center">
 <img src="https://cdn.discordapp.com/attachments/1565628919871438969/1569393116375425076/IMG_8433.png?ex=6af34abc&is=6af1f93c&hm=818a45521cf8207a74d68898ffdf326261f6a33a4c0dc9cf304702af7e57e253&" width="500">
 </p>
+
+<p align="center">
+<img width="500" alt="image" src="https://github.com/user-attachments/assets/55d4ef85-85b9-4dfb-8773-636a7451be5f" />
+</p>
+
 
 <p align="center">
 byi , i like to make it known i'm mentally ill please block me if you're uncomfortable with me , i will ignore you if you ask if i'm okay , i'm a sys and we don't like self-diagnosis (exception if you have a good enough reason for it) , i get really weird with my jokes , i tend to isolate myself and push my friends away ever so often  i don't hate you  it's just my way of coping  i'll come back , i have extreme social anxiety and almost never initiate convos first unless i'm comfortable with you
